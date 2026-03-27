@@ -5,4 +5,4 @@ Auther = Rachan C P
 <br>
 i am the super star of the world
 <br>
-i will be thw first millionare of my family background
+i will be the first millionare of my family background
